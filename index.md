@@ -1,3 +1,3 @@
-# Welcome to my blog
-
+# Welcome to the world of Business Development
 I'm glad you are here. I plan to talk about ...
+the way you can improve your business
